@@ -44,6 +44,8 @@ Feel free to make copies of this list and reuse for any non-commercial purposes 
 * https://hypnotichayleestore.com - Online store
 * https://mserotichypnotic.com/
 * HypnoHedonista.com
+* https://deepsurrender.com/
+
 
 # Other non-awesome lists:
 * .
