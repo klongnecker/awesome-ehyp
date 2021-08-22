@@ -24,15 +24,26 @@ Feel free to make copies of this list and reuse for any non-commercial purposes 
 * 
 
 # Forum and Chat servers such as Discord
-* 
+* [Erotic Hypnosis on Reddit](https://www.reddit.com/r/EroticHypnosis/)
 
 # Social network
 * [You Must Obey Collective](https://www.youmustobey.com/collective) - Ehyp specific 
+
+# EHyp blogs
+* https://goddesshypnotica.wordpress.com/
+* https://twitter.com/ZiiHypnoQueen
+* 
 
 # Sites centered around specific creators or groups
 * [Shibbydex.com](https://www.Shibbydex.com) - Free and Pateron supported - Female vocied - Shibby fdom produces much audio content
 * [eSuccubus](http://esuccubus.com/) - Free and pateron supported - Female voiced - A couple of dedicated authors making new and unique content. Blog style
 * [Vive hypnosis](https://vive-hypnosis.com/hypnosis-mp3/#) - Online store - Male voiced - Large collection of male voiced audio files content 
+* [Sheller Rivers Hypnotica](https://www.shellerivershypnotica.com/)
+* [Lacelibertine](https://lacelibertine.net/)
+* [Spiral Seductions](https://spiralseductions.com/)
+* https://hypnotichayleestore.com - Online store
+* https://mserotichypnotic.com/
+* HypnoHedonista.com
 
 # Other non-awesome lists:
 * .
