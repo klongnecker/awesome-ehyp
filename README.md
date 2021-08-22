@@ -11,6 +11,9 @@ To get updates click the watch button in the top left.
 
 Feel free to make copies of this list and reuse for any non-commercial purposes - commercial listings permitted but regulated, it probably won't be here forever.
 
+# How tos
+* https://www.reddit.com/r/EroticHypnosis/comments/194t6q/how_to_hypnotize_others/
+
 # Fiction aggregation sites
 * [mcstories.com](https://mcstories.com) - Free - Large tresure trove of text based stories of a wide range of MC content
 
