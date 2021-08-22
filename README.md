@@ -45,7 +45,7 @@ Feel free to make copies of this list and reuse for any non-commercial purposes 
 * https://mserotichypnotic.com/
 * HypnoHedonista.com
 * https://deepsurrender.com/
-
+* http://www.eroticdeeptrance.com/blog/category/mp3-store/
 
 # Other non-awesome lists:
 * .
